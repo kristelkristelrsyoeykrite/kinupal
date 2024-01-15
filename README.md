@@ -9,51 +9,8 @@
   
   <br/><br/><br/>
 </div>
-.
-.
+
 wag ka magscroll
-.
-.
-.
-.
-.
-.
+ <br>  <br>  <br>  <br> <br> <br> <br> <br> sabing wag nga e <br> <br> <br> <br> <br> <br> bahala ka <br> <br> <br> <br> <br> <br> <br> <br> <br> <br> <br> <br>
 
-.
-.
-.
-
-.
-.
-.
-sabing wag
-.
-.
-.
-
-.
-.
-.
-
-.
-.
-.
-
-.
-.
-.
-
-.
-.
-.
-
-.
-.
-.
-.
-.
-.
-.
-.
-.
-
+ ![](
