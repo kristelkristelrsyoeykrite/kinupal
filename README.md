@@ -12,6 +12,6 @@
 
 wag ka magscroll
  <br>  <br>  <br>  <br> <br> <br> <br> <br>  <br>  <br>  <br>  <br> <br> <br> <br> <br>sabing wag nga e <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> bahala ka <br> <br> <br> <br> <br> <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> <br>
- <br>  <br>  <br>  <br> <br> <br> <br> <br>  <br>  <br>  <br>  <br> <br> <br> <br> <br>sabing wag nga e <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> bahala ka <br> <br> <br> <br> <br> <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> <br>
+ <br>  <br>  <br>  <br> <br> <br> <br> <br>  <br>  <br>  <br>  <br> <br> <br> <br> <br>kulit <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> ok <br> <br> <br> <br> <br> <br> <br> <br>  <br>  <br>  <br> <br> <br> <br> <br> <br> <br> <br> <br> <br>
 
  ![](https://github.com/kristelkristelrsyoeykrite/kinupal/blob/4dcd3f9fe459f683d25c1f0c4b15c1009612592a/thanks.png)
