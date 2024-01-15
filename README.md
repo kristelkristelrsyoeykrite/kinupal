@@ -1,4 +1,4 @@
-<div align="center">  <h2>  Hello ako po si Kristel  </h2> <br>
+<div align="center">  <h2>  Hello ako po si Kristel  </h2>
  <h2>  nandito po ang sagot sa katotohanan  </h2>
  </div>
 <!--
